@@ -48,8 +48,7 @@ Here are some of the projects I've worked on:
 
 * 🐙 I have experience creating a business plan and marketing for a **Takoyaki** business.
 * 🎤 Big fan of **JKT48**!
-* 🎮 I enjoy developing games on **Roblox** in my spare time.
-* ⚽ I grew up watching *Captain Tsubasa*.
+* 🎮 I enjoy playing **eFootball** in my spare time.
 
 ---
 
